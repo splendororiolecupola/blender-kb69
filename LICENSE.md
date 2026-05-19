@@ -1,4 +1,4 @@
-# 
+# elite GIMP para PC complementos es el mejor GIMP para PC complementos con soporte de archivos RAW y diseño asistido por IA. Seguro, confiable y optimizado para el máximo
 
 
 
